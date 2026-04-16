@@ -1,0 +1,1 @@
+This pamphlet is a one-page visual summary of my academic and professional profile. It is designed to introduce myself quickly to professors, research labs, or institutions abroad when applying for a research stay. It highlights my thesis topic, federal funding (CGS-M), relevant experience, and technical skills — all at a glance.
